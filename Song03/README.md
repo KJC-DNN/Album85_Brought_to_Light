@@ -1,5 +1,6 @@
 # Album 85 — Brought to Light
 KJC-DNN / Remnant Christian Worship
+(The Lamp, the Veil, and the Book | SCP 4001–4600 Intercession)
 
 ## Long Is the Way, the River, and the Iron Choir
 
